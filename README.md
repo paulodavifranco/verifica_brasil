@@ -1,3 +1,7 @@
+https://github.com/user-attachments/assets/281ab7a4-4bdf-4f63-af84-cb9753a2513f
+
+
+
 **CONFIA BRASIL: Seu verificador de notícias contra a desinformação.**
 
 Em um cenário digital inundado por informações nem sempre confiáveis, o CONFIA BRASIL surge como uma plataforma dedicada a oferecer um espaço onde você pode verificar a veracidade de 
